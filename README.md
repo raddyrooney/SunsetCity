@@ -1,0 +1,1 @@
+Sunset City is a game enveloped in a relaxing atmosphere. You've found yourself to be a cat navigating a city to observe the sunset. The gameplay involves exploring rooftops, traversing alleyways, and meeting new friends at the player's discretion. Find your way through life in Sunset City.
